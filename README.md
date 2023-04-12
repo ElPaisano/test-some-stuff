@@ -1,6 +1,6 @@
 # test-some-stuff
 
-errorrorooroor
+errorroroor
 errrorooorr
 
 Bad grammar am eye, Yoda do I sounddd liiiiiiiiiiiiiike much do I?
