@@ -5,7 +5,7 @@ Teststtstttstt
 
 Bad grammar am eye, Yoda do I sounddd liiiiiiiiiiiiiike much do I?
 
-the forz is straungh wif deez wan
+Dee forz is straungh wif deez wan
 
 for dayz
 
